@@ -1,0 +1,2 @@
+# notes
+Emma's thoughts.
